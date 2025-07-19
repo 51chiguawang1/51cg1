@@ -1,7 +1,7 @@
 # 51吃瓜官网最新地址
-官网最新地址：（更新时间：2025/07/17）
+官网最新地址：（更新时间：2025/07/19）
 
-51吃瓜最新入口：https://51cga33.com
+51吃瓜最新入口：https://51cga34.com
 
 51吃瓜永久地址（需要VPN）：https://51cg1.com
 
@@ -20,11 +20,11 @@
 
 方法三：加入51吃瓜Telegram公告频道：https://t.me/https_51cg_fun_1
 
-方法4：加入51吃瓜微信扣扣粉丝群：https://51cga33.com/?path=/qun.html
+方法4：加入51吃瓜微信扣扣粉丝群：https://51cga34.com/?path=/qun.html
 
 近期热瓜迭代版：CS选手宙斯宙斯约炮李欣莳全网最全爆料与多位国内女职业粉丝性爱视频同时中断！🔥🔥🔥
 
-https://51cga33.com/?path=/archives/215304/
+https://51cga34.com/?path=/archives/215304/
 
 联系我们： 商务合作🤝 https://t.me/GM_51cg
 
